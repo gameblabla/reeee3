@@ -51,7 +51,7 @@ Yeah you don't. Real men figure it out themselves. DUH !
 
 ## History
 
-This project was first created House-San decided to hire a bunch of lawyers
+This project was first created House-San, who decided to hire a bunch of lawyers
 and piss off people because FUCK HUMANS !!!
 
 He was very sucessful in doing so, getting lottas money in the process.
@@ -60,7 +60,7 @@ he could finally buy his own yacht while wearing indochino.
 
 Get your own indochina with Uyghur labour at https://legaleagle.link/mackweldon and get 20% off your first purcharse !
 
-Anyway, apparently i think they made many too selling video games, i think...
+Anyway, apparently i think they sold video games too, i think...
 But most of the money was earned through lawsuits. Yum, tasty lawsuits.
 
 So yeah a bunch of doods decide that they should revive this really obscure game about MS13.
@@ -88,12 +88,12 @@ down the streets and get yourself killed.
 Because after all, reality is the best way to experience the game.
 
 BUT !!!
-If you want to teach those nasty, evil, LaWWWWyyeeerrs a lesson,
+If you want to teach those nasty, evil LaWWWWyyeeerrs a lesson :
 you can spread the word by copying this, show the middle finger
 to lawyers while singing the American National Anthem.
 
-Don't forget to have your taco bell or Big mac on one hand,
-and a gun on the other while doing so !!!
+Don't forget to have your taco bell or Big mac on one hand...
+and a gun on the other.
 
 ## License
 
