@@ -69,20 +69,20 @@ House-San loves MS13, he made several games about them and numerous love letters
 They really love MS13 \o/
 
 But yeah due to the Ching-Chong Virus, the project was finally complete !
-That means that you can finally worship MS13 from your room !
+That means that you can finally worship MS13 from your own room !
 
 But stoopid white lawyers want to have MS13 for themselves !
 How dare they, i don't have to pay up actual money to worship MS13, WHAT THE HELL !!!
 
-But The-Company-whose-name-should-not-be-pronounced,  decided that no,
-the laws of the universe decided that yes, MS13 was under their own copyright and 
+But The-Company-whose-name-should-not-be-pronounced, said that yes :
+the laws of the universe decided that MS13 was under their own copyright and 
 that you cannot touch them without their own explicit permission.
 
 WHY DOES THE 1ST AMENDMENT DONT DO SHIT AGAINST COPYRIGHT !!!
-WHY DOES COPYRIGHT LAWS OVERRIDE THE 1ST AMENDMENT !!!
+WHY COPYRIGHT LAWS OVERRIDE THE 1ST AMENDMENT !!!
 BULLSHIT!!!! >>>>:((((
 
-So yes unfortunately, if you love MS13, you don't have to do it from your own room :
+So yes unfortunately, if you love MS13, you can't do it from your own room :
 you gotta actually get up from your bed you fucking moron and beat up some MS13 members
 down the streets and get yourself killed.
 Because after all, reality is the best way to experience the game.
